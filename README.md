@@ -1,1 +1,1 @@
-# rssschool-cv
+ https://ArtemTur.github.io/rssschool-cv/
